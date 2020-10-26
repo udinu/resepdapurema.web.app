@@ -1,0 +1,103 @@
+---
+description: "Bagaimana Menyiapkan Sate Lilit Ikan Tenggiri khas Bali Anti Gagal"
+title: "Bagaimana Menyiapkan Sate Lilit Ikan Tenggiri khas Bali Anti Gagal"
+slug: 3376-bagaimana-menyiapkan-sate-lilit-ikan-tenggiri-khas-bali-anti-gagal
+date: 2020-06-04T18:23:14.672Z
+image: https://img-global.cpcdn.com/recipes/e506bd5bde807976/751x532cq70/sate-lilit-ikan-tenggiri-khas-bali-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/e506bd5bde807976/751x532cq70/sate-lilit-ikan-tenggiri-khas-bali-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/e506bd5bde807976/751x532cq70/sate-lilit-ikan-tenggiri-khas-bali-foto-resep-utama.jpg
+author: Charlie Hopkins
+ratingvalue: 3.7
+reviewcount: 13
+recipeingredient:
+- "300 gr ikan tengiri hilangkan duri2nya haluskan"
+- "2 sdm kelapa parut muda"
+- "2 sdm santan sy pakai sasa santan kelapa"
+- "2 lbr daun jeruk iris halus"
+- "7 batang sereh untuk tusuk sate"
+- "secukupnya garam gula kaldu jamur"
+- " Bumbu Halus"
+- "4 siung bawang merah"
+- "2 siung bawang putih"
+- " cabe rawit dan cabe besar merah sesuai selera"
+- "1 butir kemiri"
+- "1 cm kunyit"
+- "1 cm kencur"
+recipeinstructions:
+- "Siapkan bahan2"
+- "Uleg/blender bumbu halus"
+- "Kemudian tumis sampai matang bumbunya"
+- "Sambil menunggu bumbu halus dingin, kita siapkan adonan sate. campur ikan yg sudah halus dg parutan kelapa, santan, daun jeruk, garam, gula, kaldu jamur"
+- "Kemudian masukkan bumbu yg sudah ditumis.aduk sampai rata, cek rasa"
+- "Kemudian siapkan batang sereh, basahi dg air (biar ga mudah gosong) kmdian geprek ujungnya yg bagian putih"
+- "Lilitkan adonan pd batang sereh, sambil di kepal2 spy adonan kuat/ga mudah lepas pd saat dibakar"
+- "Setelah semua di lilitkan, siapkan grillpan.sy olesi sedikit margarin, stlh panas panggang sate. dibolak balik ya biar ga gosong."
+- "Panggang sampai sisi2nya berwarna kecoklatan. sate siap dihidangkan dg sambal matah dan nasi hangat. dicemil tanpa nasi pun enak 😋👌"
+categories:
+- Resep
+tags:
+- sate
+- lilit
+- ikan
+
+katakunci: sate lilit ikan 
+nutrition: 245 calories
+recipecuisine: Indonesian
+preptime: "PT10M"
+cooktime: "PT32M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Sate Lilit Ikan Tenggiri khas Bali](https://img-global.cpcdn.com/recipes/e506bd5bde807976/751x532cq70/sate-lilit-ikan-tenggiri-khas-bali-foto-resep-utama.jpg)
+
+Sedang mencari ide resep sate lilit ikan tenggiri khas bali yang unik? Cara membuatnya memang tidak terlalu sulit namun tidak gampang juga. Jika salah mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal sate lilit ikan tenggiri khas bali yang enak harusnya sih memiliki aroma dan cita rasa yang mampu memancing selera kita.
+
+Ya, sate ala Bali yang satu ini memiliki bahan dasar daging ikan yang dicampur dengan parutan kelapa, aneka bumbu dan rempah, lalu dililitkan Daging fillet yang biasa digunakan berasal dari ikan tuna. Namun anda bisa menggantinya dengan ikan berdaging putih lainnya seperti tenggiri, gurame. Istilah lilit dalam bahasa Bali dan Indoneisa berarti &#34;membungkus&#34;, yang sesuai untuk cara pembuatan sate ini.
+
+Ada beberapa hal yang sedikit banyak mempengaruhi kualitas rasa dari sate lilit ikan tenggiri khas bali, pertama dari jenis bahan, lalu pemilihan bahan segar sampai cara membuat dan menyajikannya. Tak perlu pusing kalau mau menyiapkan sate lilit ikan tenggiri khas bali yang enak di mana pun anda berada, karena asal sudah tahu triknya maka hidangan ini bisa jadi sajian spesial.
+
+
+Di bawah ini ada beberapa cara mudah dan praktis dalam mengolah sate lilit ikan tenggiri khas bali yang siap dikreasikan. Anda bisa membuat Sate Lilit Ikan Tenggiri khas Bali memakai 13 jenis bahan dan 9 tahap pembuatan. Berikut ini langkah-langkah dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan untuk menyiapkan Sate Lilit Ikan Tenggiri khas Bali:
+
+1. Siapkan 300 gr ikan tengiri, hilangkan duri2nya, haluskan
+1. Sediakan 2 sdm kelapa parut muda
+1. Siapkan 2 sdm santan (sy pakai sasa santan kelapa)
+1. Gunakan 2 lbr daun jeruk, iris halus
+1. Siapkan 7 batang sereh untuk tusuk sate
+1. Siapkan secukupnya garam, gula, kaldu jamur
+1. Gunakan  Bumbu Halus
+1. Ambil 4 siung bawang merah
+1. Gunakan 2 siung bawang putih
+1. Ambil  cabe rawit dan cabe besar merah (sesuai selera)
+1. Gunakan 1 butir kemiri
+1. Sediakan 1 cm kunyit
+1. Gunakan 1 cm kencur
+
+
+Biasanya yang digunakan adalah ikan tenggiri atau ikan kakap yang dicampur dengan daging udang agar rasanya makin mantap. Ingin bikin sendiri sate lilit a la Bali di rumah? Yuk, ikuti tahap demi tahap cara membuat masakan favorit dapur Pulau Dewata ini! Sate lilit merupakan makanan khas Bali yang diolah menggunakan bahan daging, daging yang sering digunakan adalah daging babi, ikan, ayam, sapi dan kura-kura. 
+
+<!--inarticleads2-->
+
+##### Cara membuat Sate Lilit Ikan Tenggiri khas Bali:
+
+1. Siapkan bahan2
+1. Uleg/blender bumbu halus
+1. Kemudian tumis sampai matang bumbunya
+1. Sambil menunggu bumbu halus dingin, kita siapkan adonan sate. campur ikan yg sudah halus dg parutan kelapa, santan, daun jeruk, garam, gula, kaldu jamur
+1. Kemudian masukkan bumbu yg sudah ditumis.aduk sampai rata, cek rasa
+1. Kemudian siapkan batang sereh, basahi dg air (biar ga mudah gosong) kmdian geprek ujungnya yg bagian putih
+1. Lilitkan adonan pd batang sereh, sambil di kepal2 spy adonan kuat/ga mudah lepas pd saat dibakar
+1. Setelah semua di lilitkan, siapkan grillpan.sy olesi sedikit margarin, stlh panas panggang sate. dibolak balik ya biar ga gosong.
+1. Panggang sampai sisi2nya berwarna kecoklatan. sate siap dihidangkan dg sambal matah dan nasi hangat. dicemil tanpa nasi pun enak 😋👌
+
+
+Daging tersebut akan dihaluskan dan dicampur dengan parutan kelapa, santan, jeruk nipis, bawang merah dan merica. Sering kali sate lilit Bali dijadikan sebagai rekomendasi tepat untuk mengisi perut kosong setelah puas menikmati keindahan alam Bali. Kuliner dari sate lilit Bali ini pada hakikatnya dibuat dari daging ikan yang dililitkan pada bilah bambu sehingga akan menghasilkan menu yang dikenal dengan nama. Sate lilit adalah sate khas Bali. Resep asli sate ini dibuat dari daging babi dan ikan, tapi karena menyesuaikan dengan orang muslim maka dibuat juga Sate lilit buatan Pak Komang dibuat dari ikan tenggiri dan racikan bumbu istimewa. 
+
+Bagaimana? Gampang kan? Itulah cara menyiapkan sate lilit ikan tenggiri khas bali yang bisa Anda lakukan di rumah. Semoga bermanfaat dan selamat mencoba!

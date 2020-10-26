@@ -1,0 +1,83 @@
+---
+description: "Bagaimana Membuat Jukut Bejek /Plecing Kacang Panjang Anti Gagal"
+title: "Bagaimana Membuat Jukut Bejek /Plecing Kacang Panjang Anti Gagal"
+slug: 11-bagaimana-membuat-jukut-bejek-plecing-kacang-panjang-anti-gagal
+date: 2020-09-11T00:42:53.928Z
+image: https://img-global.cpcdn.com/recipes/18fce8a052b111b4/751x532cq70/jukut-bejek-plecing-kacang-panjang-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/18fce8a052b111b4/751x532cq70/jukut-bejek-plecing-kacang-panjang-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/18fce8a052b111b4/751x532cq70/jukut-bejek-plecing-kacang-panjang-foto-resep-utama.jpg
+author: Lester Ortiz
+ratingvalue: 4.3
+reviewcount: 7
+recipeingredient:
+- "20 lenjar kacang panjang"
+- "250 ml santan kental"
+- "secukupnya Garam dan gula"
+- " Bumbu yg dihaluskan "
+- "3 siung bawang putih"
+- "2 bh kemiri sangrai"
+- "Seruas kencur"
+- "Sejempol kunyit"
+recipeinstructions:
+- "Potong kacang panjang jadi 3. Rebus sampai cukup empuk. Tiriskan. Belah kacang panjang jadi 2 lalu diperas"
+- "Tumis bumbu halus hingga harum, masukkan santan kental. Beri garam dan gula secukupnya. Masak sampai mendidih. Matikan api. Biarkan dingin"
+- "Campur santan dg kacang panjang. Aduk rata / bejek"
+- "Sajikan dg taburan bawang merah goreng."
+categories:
+- Resep
+tags:
+- jukut
+- bejek
+- plecing
+
+katakunci: jukut bejek plecing 
+nutrition: 282 calories
+recipecuisine: Indonesian
+preptime: "PT34M"
+cooktime: "PT42M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Jukut Bejek /Plecing Kacang Panjang](https://img-global.cpcdn.com/recipes/18fce8a052b111b4/751x532cq70/jukut-bejek-plecing-kacang-panjang-foto-resep-utama.jpg)
+
+Anda sedang mencari ide resep jukut bejek /plecing kacang panjang yang unik? Cara membuatnya memang tidak terlalu sulit namun tidak gampang juga. Kalau salah mengolah maka hasilnya akan hambar dan bahkan tidak sedap. Padahal jukut bejek /plecing kacang panjang yang enak seharusnya mempunyai aroma dan cita rasa yang mampu memancing selera kita.
+
+Jukut Becek /Plecing Kacang Panjang adalah makanan khas Bali. Sayur ini biasanya ada di nasi campur Bali disajikan dengan ayam Betutu dan sate lilit juga cocok. Bumbunya simpel tapi rasanya luar biasa terbuat dari kacang panjang aja 😘 Source  Resep sayur Kacang Panjang Santan/jukut kalas khas bali/jukut bejek khas bali.
+
+Ada beberapa hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari jukut bejek /plecing kacang panjang, pertama dari jenis bahan, lalu pemilihan bahan segar sampai cara membuat dan menghidangkannya. Tidak usah pusing jika hendak menyiapkan jukut bejek /plecing kacang panjang yang enak di rumah, karena asal sudah tahu triknya maka hidangan ini mampu menjadi suguhan istimewa.
+
+
+Di bawah ini ada beberapa tips dan trik praktis dalam mengolah jukut bejek /plecing kacang panjang yang siap dikreasikan. Anda bisa membuat Jukut Bejek /Plecing Kacang Panjang memakai 8 bahan dan 4 tahap pembuatan. Berikut ini cara untuk menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan untuk menyiapkan Jukut Bejek /Plecing Kacang Panjang:
+
+1. Gunakan 20 lenjar kacang panjang
+1. Siapkan 250 ml santan kental
+1. Gunakan secukupnya Garam dan gula
+1. Sediakan  Bumbu yg dihaluskan :
+1. Gunakan 3 siung bawang putih
+1. Siapkan 2 bh kemiri sangrai
+1. Sediakan Seruas kencur
+1. Siapkan Sejempol kunyit
+
+
+Ke pasar clingak clinguk cari sayuran ko bosen yaa sayuran itu itu aja. Tiba tiba keingetan postingan ci xanders gulai kacang panjang kmren. Ah bikin ini aja deh biar ga bosen. Biasanya kacang panjang dimasak tumis kecap bareng. 
+
+<!--inarticleads2-->
+
+##### Cara membuat Jukut Bejek /Plecing Kacang Panjang:
+
+1. Potong kacang panjang jadi 3. Rebus sampai cukup empuk. Tiriskan. Belah kacang panjang jadi 2 lalu diperas
+1. Tumis bumbu halus hingga harum, masukkan santan kental. Beri garam dan gula secukupnya. Masak sampai mendidih. Matikan api. Biarkan dingin
+1. Campur santan dg kacang panjang. Aduk rata / bejek
+1. Sajikan dg taburan bawang merah goreng.
+
+
+Brilio.net - Kacang panjang merupakan salah satu sayuran yang mudah dijumpai. Jukut bejang khas Bali. foto: Instagram/@sajiansedapkita. Benarkah khasiat kacang panjang bisa memperbesar payudara dan dapat mencegah kanker? Kacang panjang memiliki nama latin Vigna unguiculata ssp. Jukut Bejek Sambal Embe Jukut bejek #sambal embe adalah menu khas #Bali yang saya modif sedikit dengan menambahkan. 
+
+Bagaimana? Mudah bukan? Itulah cara menyiapkan jukut bejek /plecing kacang panjang yang bisa Anda praktikkan di rumah. Selamat mencoba!

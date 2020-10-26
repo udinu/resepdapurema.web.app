@@ -1,0 +1,89 @@
+---
+description: "Langkah Mudah untuk Membuat Jukut kacang panjang (khas bali) yang Bikin Ngiler"
+title: "Langkah Mudah untuk Membuat Jukut kacang panjang (khas bali) yang Bikin Ngiler"
+slug: 168-langkah-mudah-untuk-membuat-jukut-kacang-panjang-khas-bali-yang-bikin-ngiler
+date: 2020-10-12T07:12:21.939Z
+image: https://img-global.cpcdn.com/recipes/dc4dab2df7f9c34b/751x532cq70/jukut-kacang-panjang-khas-bali-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/dc4dab2df7f9c34b/751x532cq70/jukut-kacang-panjang-khas-bali-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/dc4dab2df7f9c34b/751x532cq70/jukut-kacang-panjang-khas-bali-foto-resep-utama.jpg
+author: Flora Day
+ratingvalue: 3.4
+reviewcount: 11
+recipeingredient:
+- "300 gram kacang panjang"
+- "800 ml air untuk merebus"
+- "Secukupnya minyak untuk menumis bumbu"
+- " Bumbu halus"
+- "5 siung bawang putih kating"
+- "3 butir kemiri goreng"
+- "1 ruas jari kencur"
+- "1/2 ruas jari kunyit tua"
+- "Secukupnya garam"
+- " Bumbu Tambahan"
+- "50 ml Air"
+- "150 ml santan kental"
+- "1 sdt kadlu jamur totole"
+recipeinstructions:
+- "Poton kacang panjang sesuai selera (agak panjang ya), rebus kacang panjang hingga setengah matang (8menit). Kemudian angkat tiriskan dan belah kacang panjang menjadi dua lalu sisihkan."
+- "Panaskan minyak, tumis bumbu halus hingga wangi dan matang sempurna. Kemudian tambahkan kaldu jamur, air dan santan kental, biarkan hingga mendidih. Kemudian tambahkan kacang panjang aduk merata dan biarkan lunak serta santan menyusut sesuai selera. Koreksi rasa dan sajikan. Selamat mencoba😋"
+categories:
+- Resep
+tags:
+- jukut
+- kacang
+- panjang
+
+katakunci: jukut kacang panjang 
+nutrition: 193 calories
+recipecuisine: Indonesian
+preptime: "PT32M"
+cooktime: "PT56M"
+recipeyield: "2"
+recipecategory: Dessert
+
+---
+
+
+![Jukut kacang panjang (khas bali)](https://img-global.cpcdn.com/recipes/dc4dab2df7f9c34b/751x532cq70/jukut-kacang-panjang-khas-bali-foto-resep-utama.jpg)
+
+Lagi mencari ide resep jukut kacang panjang (khas bali) yang unik? Cara membuatnya memang susah-susah gampang. Kalau keliru mengolah maka hasilnya akan hambar dan justru cenderung tidak enak. Padahal jukut kacang panjang (khas bali) yang enak selayaknya punya aroma dan cita rasa yang bisa memancing selera kita.
+
+Ada beberapa hal yang sedikit banyak mempengaruhi kualitas rasa dari jukut kacang panjang (khas bali), mulai dari jenis bahan, selanjutnya pemilihan bahan segar, sampai cara membuat dan menyajikannya. Tak perlu pusing jika mau menyiapkan jukut kacang panjang (khas bali) enak di rumah, karena asal sudah tahu triknya maka hidangan ini mampu menjadi sajian spesial.
+
+Sayur kacang hitam atau dalam bahasa Bali disebut dengan jukut undis merupakan makanan khas dari Buleleng. Jukut dalam bahasa Bali disebut dengan sayur sedangkan undis adalah kacang hitam yang berbentuk bulat. Meskipun tekstur pertamanya keras, kacang ini akan menjadi empuk dan.
+
+
+Nah, kali ini kita coba, yuk, variasikan jukut kacang panjang (khas bali) sendiri di rumah. Tetap berbahan sederhana, sajian ini bisa memberi manfaat dalam membantu menjaga kesehatan tubuhmu sekeluarga. Anda bisa membuat Jukut kacang panjang (khas bali) menggunakan 13 jenis bahan dan 2 langkah pembuatan. Berikut ini cara untuk membuat hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang dibutuhkan dalam menyiapkan Jukut kacang panjang (khas bali):
+
+1. Sediakan 300 gram kacang panjang
+1. Ambil 800 ml air untuk merebus
+1. Gunakan Secukupnya minyak untuk menumis bumbu
+1. Siapkan  Bumbu halus
+1. Gunakan 5 siung bawang putih kating
+1. Gunakan 3 butir kemiri goreng
+1. Gunakan 1 ruas jari kencur
+1. Sediakan 1/2 ruas jari kunyit tua
+1. Sediakan Secukupnya garam
+1. Ambil  Bumbu Tambahan
+1. Gunakan 50 ml Air
+1. Sediakan 150 ml santan kental
+1. Ambil 1 sdt kadlu jamur totole
+
+
+Makanan khas Bali berikutnya berupa bubur bali. Bubur mangguh adalah sajian bubur yang menjadi kuliner khas dari Desa Tedjakula, Bon Dalem, Buleleng dengan ciri khasnya menambahkan urapan dan kacang goreng. Kacang panjang atau nama latinnya Vigna Sinensis merupakan tanaman berjenis sayuran yang masuk dalam golongan famili leguminosa. Perlu diketahui bahwa tanaman yang tergolong dalam famili leguminosa merupakan tanaman sayuran yang dapat memulihkan kandungan nitrogen yang ada. 
+
+<!--inarticleads2-->
+
+##### Langkah-langkah menyiapkan Jukut kacang panjang (khas bali):
+
+1. Poton kacang panjang sesuai selera (agak panjang ya), rebus kacang panjang hingga setengah matang (8menit). Kemudian angkat tiriskan dan belah kacang panjang menjadi dua lalu sisihkan.
+1. Panaskan minyak, tumis bumbu halus hingga wangi dan matang sempurna. Kemudian tambahkan kaldu jamur, air dan santan kental, biarkan hingga mendidih. Kemudian tambahkan kacang panjang aduk merata dan biarkan lunak serta santan menyusut sesuai selera. Koreksi rasa dan sajikan. Selamat mencoba😋
+
+
+Kacang panjang merupakan tumbuhan yang dijadikan sayur atau lalapan. Ia tumbuh dengan cara memanjat atau melilit. Bagian yang dijadikan sayur atau lalapan adalah buah yang masih muda dan serat-seratnya masih lunak, kacang panjang ini mudah didapati di kawasan panas di Asia. Makanan Khas Bali yang Bikin Ngiler. Bali memang menjadi destinasi wisata yang kerap dikunjungi turis-turis, baik dari dalam maupun luar negeri. 
+
+Terima kasih telah menggunakan resep yang tim kami tampilkan di halaman ini. Besar harapan kami, olahan Jukut kacang panjang (khas bali) yang mudah di atas dapat membantu Anda menyiapkan makanan yang enak untuk keluarga/teman ataupun menjadi inspirasi bagi Anda yang berkeinginan untuk berjualan makanan. Semoga bermanfaat dan selamat mencoba!

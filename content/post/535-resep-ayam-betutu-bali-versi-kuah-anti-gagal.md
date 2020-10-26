@@ -1,0 +1,113 @@
+---
+description: "Resep Ayam Betutu Bali (Versi Kuah) Anti Gagal"
+title: "Resep Ayam Betutu Bali (Versi Kuah) Anti Gagal"
+slug: 535-resep-ayam-betutu-bali-versi-kuah-anti-gagal
+date: 2020-04-26T15:57:10.103Z
+image: https://img-global.cpcdn.com/recipes/11e485be44442a90/751x532cq70/ayam-betutu-bali-versi-kuah-foto-resep-utama.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/11e485be44442a90/751x532cq70/ayam-betutu-bali-versi-kuah-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/11e485be44442a90/751x532cq70/ayam-betutu-bali-versi-kuah-foto-resep-utama.jpg
+author: Olivia Porter
+ratingvalue: 4.8
+reviewcount: 4
+recipeingredient:
+- "500 gram paha ayam tanpa dipotong"
+- "1/2 buah jeruk nipis"
+- " Daun pisangalumunium foil untuk membungkus saat dikukus"
+- " Bumbu Halus"
+- "8 butir bawang merah"
+- "4 siung bawang putih"
+- "2 butir kemiri bakar dulu"
+- "1 sdm ketumbar"
+- "1 telunjuk kunyit bakar dulu"
+- "1/4 jempol kencur"
+- "3 buah cabe merah besar"
+- "9 buah cabe rawit"
+- "1/2 sdm terasi bakar dulu"
+- "3 sdm garam"
+- "1 sdm gula"
+- " Bumbu Rajang"
+- "3 batang serai"
+- "1 jempol lengkuas"
+- "1 jempol jahe"
+- "5 lembar daun jeruk"
+recipeinstructions:
+- "Cuci bersih paha ayam, hilangkan jeroannya. Kucuri air perasan jeruk nipis, diamkan 15 menit. Lalu bilas air bersih, tiriskan."
+- "Siapkan bumbu rajang dan bumbu halus. Campurkan keduanya dalam wadah"
+- "Lumuri ayam dengan bumbu halus dan bumbu rajang sampai merata. Pijit-pijit supaya meresap"
+- "Pindahkan ke wadah tahan panas yang sudah dilapisi daun pisang"
+- "Tutupi ayam dengan daun pisang secara menyeluruh"
+- "Kukus ayam dengan api kecil selama 75 menit"
+- "Angkat. Sajikan bersama kuahnya."
+categories:
+- Resep
+tags:
+- ayam
+- betutu
+- bali
+
+katakunci: ayam betutu bali 
+nutrition: 153 calories
+recipecuisine: Indonesian
+preptime: "PT15M"
+cooktime: "PT49M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+![Ayam Betutu Bali (Versi Kuah)](https://img-global.cpcdn.com/recipes/11e485be44442a90/751x532cq70/ayam-betutu-bali-versi-kuah-foto-resep-utama.jpg)
+
+Anda sedang mencari inspirasi resep ayam betutu bali (versi kuah) yang unik? Cara membuatnya memang tidak susah dan tidak juga mudah. Jika keliru mengolah maka hasilnya tidak akan memuaskan dan bahkan tidak sedap. Padahal ayam betutu bali (versi kuah) yang enak harusnya sih mempunyai aroma dan rasa yang mampu memancing selera kita.
+
+The Best olahan ayam menurut aku, The one and Only Ayam Betutu Bali. yaa makanan yang gak asing lagi dan udah di kenal di mana&#34; bahkan dari yang the real. Wikipedia Indonesia, ayam betutu adalah salah satu lauk yang terbuat dari ayam atau bebek utuh yang berisi bumbu, kemudian direbus hingga empuk lalu dipanggang dalam api sekam. Masakan betutu ini telah dikenal di seluruh kabupaten di Bali.
+
+Banyak hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari ayam betutu bali (versi kuah), mulai dari jenis bahan, kemudian pemilihan bahan segar sampai cara membuat dan menyajikannya. Tidak usah pusing jika hendak menyiapkan ayam betutu bali (versi kuah) yang enak di rumah, karena asal sudah tahu triknya maka hidangan ini bisa menjadi suguhan istimewa.
+
+
+Berikut ini ada beberapa cara mudah dan praktis dalam mengolah ayam betutu bali (versi kuah) yang siap dikreasikan. Anda dapat menyiapkan Ayam Betutu Bali (Versi Kuah) memakai 20 bahan dan 7 tahap pembuatan. Berikut ini cara dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang digunakan untuk menyiapkan Ayam Betutu Bali (Versi Kuah):
+
+1. Siapkan 500 gram paha ayam tanpa dipotong
+1. Sediakan 1/2 buah jeruk nipis
+1. Gunakan  Daun pisang/alumunium foil untuk membungkus saat dikukus
+1. Siapkan  🧄Bumbu Halus:
+1. Sediakan 8 butir bawang merah
+1. Siapkan 4 siung bawang putih
+1. Siapkan 2 butir kemiri, bakar dulu
+1. Siapkan 1 sdm ketumbar
+1. Siapkan 1 telunjuk kunyit, bakar dulu
+1. Gunakan 1/4 jempol kencur
+1. Ambil 3 buah cabe merah besar
+1. Gunakan 9 buah cabe rawit
+1. Sediakan 1/2 sdm terasi, bakar dulu
+1. Sediakan 3 sdm garam
+1. Gunakan 1 sdm gula
+1. Gunakan  🧄Bumbu Rajang:
+1. Gunakan 3 batang serai
+1. Sediakan 1 jempol lengkuas
+1. Sediakan 1 jempol jahe
+1. Siapkan 5 lembar daun jeruk
+
+
+Jika termasuk salah satunya, anda bisa mencoba menyajikan ayam betutu. Bumbunya yang meresap serta tekstur daging ayam yang empuk membuatnya jadi lezat. Hidangan khas Bali ini menggunakan banyak bumbu rempah, diantaranya adalah lengkuas, kunyit, dan kencur. Resep Ayam Betutu, Hidangan Istimewa dari Pulau Dewata. 
+
+<!--inarticleads2-->
+
+##### Langkah-langkah membuat Ayam Betutu Bali (Versi Kuah):
+
+1. Cuci bersih paha ayam, hilangkan jeroannya. Kucuri air perasan jeruk nipis, diamkan 15 menit. Lalu bilas air bersih, tiriskan.
+1. Siapkan bumbu rajang dan bumbu halus. Campurkan keduanya dalam wadah
+1. Lumuri ayam dengan bumbu halus dan bumbu rajang sampai merata. Pijit-pijit supaya meresap
+1. Pindahkan ke wadah tahan panas yang sudah dilapisi daun pisang
+1. Tutupi ayam dengan daun pisang secara menyeluruh
+1. Kukus ayam dengan api kecil selama 75 menit
+1. Angkat. Sajikan bersama kuahnya.
+
+
+Simpan ke bagian favorit Tersimpan di bagian favorit. Belum lengkap liburan ke Bali kalau belum Bisa jadi kamu pernah mencoba masakan-masakan khas Bali lainnya selain Ayam Betutu. Nasi campur Bali memang punya segalanya di sana. Resep ayam betutu - Bali adalah salah satu wilayah yang berada di Indonesia, dimana sangat populer dengan destinasi wisatanya yang indah dan memang bisa dikatakan pusat pariwisata berada disana. Terkadang para turis malah lebih mengenal Bali daripada Indonesia. 
+
+Terima kasih telah menggunakan resep yang tim kami tampilkan di sini. Harapan kami, olahan Ayam Betutu Bali (Versi Kuah) yang mudah di atas dapat membantu Anda menyiapkan hidangan yang menarik untuk keluarga/teman maupun menjadi ide untuk berbisnis kuliner. Semoga bermanfaat dan selamat mencoba!
