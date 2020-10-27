@@ -11,9 +11,9 @@ theme = "z"
   post = ":slug"
 
 [params]
-  description = "Kumpulan ide resep masakan khas bali dan padang yang mudah untuk memberi panduan dalam menentukan hidangan lezat anda di rumah"
-  topdescription = "Kumpulan ide resep masakan khas bali dan padang yang mudah untuk memberi panduan dalam menentukan hidangan lezat anda di rumah"
-  toptitle = "Resep Masakan Khas Bali & Padang"
+  description = "Kumpulan ide resep masakan khas nusantara yang mudah untuk memberi panduan dalam menentukan hidangan lezat anda di rumah"
+  topdescription = "Kumpulan ide resep masakan khas nusantara yang mudah untuk memberi panduan dalam menentukan hidangan lezat anda di rumah"
+  toptitle = "Resep Dapur Ema"
   contentBackgroundColor = "#fff"
   contentLinkColor = "#007bff"
   contentLinkHoverColor = "#0056b3"
